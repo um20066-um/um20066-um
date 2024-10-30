@@ -3,7 +3,7 @@
 - 🌱 I’m currently pursuing a BTech degree on Mechanical engineering a first year student at MKSSS Cummins college of Engineering for Women, Pune
 - 💞️ I’m looking to collaborate on (still discovering❤️😅) 
 - 📫 How to reach me, mail me at: upasanamohanty2020@gmail.com
-- 😄 Pronouns:I love Food❤️and I hate numericals that use Food as the subject.  
+- 😄 Pronouns:She/Her
 - ⚡ Fun fact:GitHub was founded in April 2008, 1.5 years after I was born!
 
 <!---
